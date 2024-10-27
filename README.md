@@ -1,5 +1,5 @@
 # ¡Hola, soy Javi! 👋
-[ASIR](https://i.redd.it/favorite-episode-of-the-animatrix-for-me-its-matriculated-v0-wxd4gz18vocc1.jpg?width=1999&format=pjpg&auto=webp&s=88e2d47240b1d623fb01a5e380ff9c800ff74df7)
+(https://i.redd.it/favorite-episode-of-the-animatrix-for-me-its-matriculated-v0-wxd4gz18vocc1.jpg?width=1999&format=pjpg&auto=webp&s=88e2d47240b1d623fb01a5e380ff9c800ff74df7)
 
 ## Sobre mí
 
