@@ -1,3 +1,5 @@
-# PowerShell para principiantes
+# He realizado los siguientes cursos:
 
-# PowerShell para administradores
+## PowerShell para principiantes
+
+## PowerShell para administradores
